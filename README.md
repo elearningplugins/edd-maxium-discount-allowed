@@ -1,0 +1,1 @@
+# edd-maxium-discount-allowed
